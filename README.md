@@ -4,7 +4,7 @@ Hi there! I am _Natascha Tenhagen_, a former Web Analyst transitioning into the 
 
 [Xing](https://www.xing.com/profile/Natascha_Tenhagen2/cv)
 
-<iframe src="https://giphy.com/embed/scZPhLqaVOM1qG4lT9" width="480" height="480" frameBorder="0" class="giphy-embed" allowFullScreen></iframe><p><a href="https://giphy.com/gifs/scaler-official-monday-computer-laptop-scZPhLqaVOM1qG4lT9">via GIPHY</a></p>
+![](https://miro.medium.com/v2/resize:fit:3600/format:webp/0*n-2bW82Z6m6U2bij.jpeg)
 
 ## Tools 
 
