@@ -8,7 +8,7 @@ Let's connect and build something awesome together!
 
 About me [Xing](https://www.xing.com/profile/Natascha_Tenhagen2/cv)
 
-![](https://miro.medium.com/v2/resize:fit:3600/format:webp/0*n-2bW82Z6m6U2bij.jpeg)
+
 
 
 
